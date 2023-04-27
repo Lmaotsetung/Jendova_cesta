@@ -1,8 +1,8 @@
-# Jendova_cesta
+# Jendova cesta
 Jendova cesta
 
 
-Toto je takový zápis mé cesty v investovnání. Sice jsem začal v roce 2012, nicméně spoustu toho jsem neprofesionalizoval nebo vedl jen tak myšlenkovitě v hlavě.
+Toto je takový zápis mé cesty v investování. Sice jsem začal v roce 2012, nicméně spoustu toho jsem neprofesionalizoval nebo vedl jen tak myšlenkovitě v hlavě. Což je chyba. Nad každou investici byste měli strávit nějaký čas.
 
 Cílem tohoto je udělat vždy analýzu dané situace a na základě toho přijmout nějaké rozhodnutí. Každý jsme v něja
 
